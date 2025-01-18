@@ -1,4 +1,4 @@
-# Tereneitor_PR | Future Engineers | Puerto Rico🦾🤖
+# Tereneitor_PR | Future Engineers | Puerto Rico🤖
 
 ## Competitors of this team
 - Daniel Rafael Roman Rodriguez - `17 years old`
